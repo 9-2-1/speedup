@@ -8,7 +8,7 @@ br0惯用手段：开合、造谣、诋毁...平台置顶不了你们就放GitHu
 <img width="1080" height="381" alt="img_v3_0211u_ff0185e9-471e-44b1-91ca-419c412b8c9g" src="https://github.com/user-attachments/assets/3fe39c90-03ab-4f7d-9401-7de7ed709f23" />
 <img width="1020" height="1641" alt="918cab17be77faf261fed975e7bb6d40" src="https://github.com/user-attachments/assets/d61f11dc-9b91-4852-8e68-3131e2d03599" />
 
-# 到底怎么编出来的，hr是傻子吗？面试官是傻子吗？背调的是傻子吗？。。。去向都不知道怎么编？br。满脑子都希望你活得比他差
+# 到底怎么编出来的，hr是傻子吗？面试官是傻子吗？背调的是傻子吗？。。。考研又是什么鬼，bro我都不知道怎么编出来的？br。满脑子都希望你活得比他差
 <img width="1214" height="1402" alt="img_v3_02118_ceae95fd-156f-47c8-adc3-de7452b968hu" src="https://github.com/user-attachments/assets/4f583f64-748d-46d4-b454-86fc25026d85" />
 
 
