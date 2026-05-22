@@ -1,4 +1,5 @@
 
+
 # “br。  
 ## br0 惯用手段：开盒、造谣、诋毁……  
 ## 平台置顶不了你们就放 GitHub 上吧。  
@@ -116,7 +117,8 @@
 <img width="1179" height="1053" alt="b00c5abf66b043ce30bfe4f7e7278e2d" src="https://github.com/user-attachments/assets/bb2f9c11-5a4b-4673-8df2-069f99ee6842" />
 <img width="1179" height="2556" alt="9753bed5b6a834867d3c6d56ed62cdd4" src="https://github.com/user-attachments/assets/36add1ee-0fa8-4c89-9250-dcaa0539897b" />
 <img width="1179" height="708" alt="f44368c76e5974306923a5a8985e5fc9" src="https://github.com/user-attachments/assets/b7a8790f-ad30-47d1-8888-75ca325b4dbb" />
-
+<img width="1179" height="2556" alt="84fad27eeb73255fadc80f2337b73781" src="https://github.com/user-attachments/assets/2a3b7495-72cd-4085-8344-dbe0e634bd41" />
+<img width="1179" height="2556" alt="053eae35eec1e3a856ac4d44fba544a9" src="https://github.com/user-attachments/assets/2662c022-7af6-45b0-9f4f-631dbf144afa" />
 
 
 
