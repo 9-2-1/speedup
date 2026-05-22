@@ -1,4 +1,12 @@
+免责声明
 
+以下内容来自原仓库，仅做保留。不意味着支持或者反对任何观点。
+
+DISCLAIMER
+
+The content is copied from upstream as is. No promotion implied.
+
+---
 
 # “br。  
 ## br0 惯用手段：开盒、造谣、诋毁……  
